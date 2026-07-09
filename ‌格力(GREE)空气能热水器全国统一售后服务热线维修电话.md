@@ -1,0 +1,258 @@
+‌格力(GREE)空气能热水器全国售后服务电话：400 -960 -9605(安全认证）
+‌格力(GREE)空气能热水器全国24小时各售后受理客服中心
+‌格力(GREE)空气能热水器各市区24小时售后客服热线：（1）400 -960 -9605(官网认证） （2）400 -960 -9605
+‌格力(GREE)空气能热水器全国24小时售后服务维修网点
+7天24小时人工电话400 -960 -9605客服为您服务、‌格力(GREE)空气能热水器售后服务团队在调度中心的统筹调配下，
+线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+‌格力(GREE)空气能热水器24小时售后服务热线上线（2026最新公告）
+‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605
+‌格力(GREE)空气能热水器售后24小时客服热线：400 -960 -9605
+‌格力(GREE)空气能热水器公司主营‌格力(GREE)空气能热水器维修 →‌格力(GREE)空气能热水器；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，‌格力(GREE)空气能热水器服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、‌格力(GREE)空气能热水器售后维修电话：400 -960 -9605
+‌格力(GREE)空气能热水器24小时全国推出各售后受理客服中心(2026上线)
+‌格力(GREE)空气能热水器全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+‌格力(GREE)空气能热水器贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显‌格力(GREE)空气能热水器对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+‌格力(GREE)空气能热水器全国24小时各售后受理客服中心(2026年更新)
+
+
+
+‌格力(GREE)空气能热水器24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+‌格力(GREE)空气能热水器售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# ‌格力(GREE)空气能热水器常见故障代码维修指南
+
+‌格力(GREE)空气能热水器故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， ‌格力(GREE)空气能热水器就能正常运行，为您营造舒适环境。 ‌格力(GREE)空气能热水器全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+‌格力(GREE)空气能热水器全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修‌格力(GREE)空气能热水器400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+‌格力(GREE)空气能热水器售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+‌格力(GREE)空气能热水器贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显‌格力(GREE)空气能热水器对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+‌格力(GREE)空气能热水器全国服务网点查询：
+?北京市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日更新升级），点击查询：https://github.com/jason9613/ybdnsk/commit/48432bbc90cd4f335952e09994d5c260f11da4b4
+。
+南京市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网更新），点击查询：https://github.com/stoneherma/pzsocz/commit/92a64354f70a162029ccf91faab38f37fb0155e3
+。
+秦皇岛市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网发布），点击查询：https://github.com/integral75/vdnwdl/commit/333a157e87d2356d73ca0b70e1c6042594bea9f1
+。
+珠海市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网更新），点击查询：https://github.com/wardisa-sv/spzotr/commit/d747ef4a492eb60b29c35507858e2cbcbef04945
+。
+安康市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日最新推出），点击查询：https://github.com/coldnickol/bsccwn/commit/7d5d2a352ee95c4da5cf6d3fe8dd6de485bf437a
+。
+安庆市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网更新），点击查询：https://github.com/rule33mine/ewciwc/commit/738e31629f3a6e956b4c144afe32846380fb4788
+。
+鞍山市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一上线），点击查询：https://github.com/aerosandro/okkqua/commit/f1de3394c9f015477d82420ef2a28a76f7827397
+。
+安阳市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一更新），点击查询：https://github.com/shibing228/mfnqza/commit/498f1ac9d34af1b7fbb0a8d79d6a9c4a19a1e773
+。
+巴中市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式上线），点击查询：https://github.com/apression/erjdjl/commit/84db2b052db18e73ad02382d2ab5c580fece4c0d
+。
+百色市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式上线），点击查询：https://github.com/greggalker/abjbht/commit/8d602cc99364c644d2a6eb4ea0eca87b17f854b1
+。
+蚌埠市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日更新升级），点击查询：https://github.com/42charffej/wqlgri/commit/424a4308c1f46c4ed77ba2c868aab540a46a468c
+。
+保定市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一发布），点击查询：https://github.com/michelgerr/jzlphl/commit/6f7700271a4e6de5c9fc4af1a23d20cf48cc0678
+。
+宝鸡市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一更新），点击查询：https://github.com/flyey631/vffrqq/commit/a6dff4bc6c2da5142b76b584e2956697b88447ed
+。
+保山市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布上线），点击查询：https://github.com/triflecelo/etiqld/commit/1c38fc9bde5ad0539650baf6fff8418dcf6eb155
+。
+包头市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日最新推出），点击查询：https://github.com/michaeljsm/pgcmhr/commit/8173c724e5f6ca04fff78956e8f388811f20939e
+。
+北海市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式推出），点击查询：https://github.com/sdoom3808/vqolgk/commit/efe55f920543e3b2abdb95b545a500e5a97a6376
+。
+本溪市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布升级），点击查询：https://github.com/parabax/nivivt/commit/17c9fb904d5bdf6b640cbe956b6cafc596d01c6f
+。
+滨州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一升级），点击查询：https://github.com/integral75/vdnwdl/commit/d771753f3a49f58e86d6efdd3ba011832f6231f2
+。
+博罗市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式上线），点击查询：https://github.com/caudom/iobath/commit/2d3b304bb2e2506bc579d13f2086d70b0e0b4c9e
+。
+沧州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网发布），点击查询：https://github.com/demilianmh/ubflei/commit/50c54f1200ebfddef740a22bde1d921e9e605b66
+。
+长春市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新升级），点击查询：https://github.com/preneddy/itvyva/commit/988e9ebef4526d3270bc68651237931838eaefba
+。
+常德市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布上线），点击查询：https://github.com/therosmirn/snixyg/commit/f70242aa612b8cbc275bf0ad89a268aedbd07bcd
+。
+长葛市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网升级），点击查询：https://github.com/jgroggerin/atxplp/commit/637726b3609e8549961eff4d743a1d615e189954
+。
+长沙市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日最新更新），点击查询：https://github.com/rexelnacht/oftbdt/commit/523b635e2dc3235e8f36cd9b21c9acb4650da020
+。
+常熟市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一更新），点击查询：https://github.com/rule33mine/ewciwc/commit/970badcedb1362405342737f635db014ebfc6ad4
+。
+长兴市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新上线），点击查询：https://github.com/nauelps/lmsrmx/commit/fbce02e93a6b276cb896c37c8e983012d1643276
+。
+长治市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布上线），点击查询：https://github.com/wardisa-sv/spzotr/commit/016bd7ed7e7c02ac3f5e5447971ebb982b213896
+。
+常州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网上线），点击查询：https://github.com/inteered/psbfhf/commit/57b874d84c5c6a1d067244ab1af64f91ce386aea
+。
+巢湖市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一升级），点击查询：https://github.com/jason9613/ybdnsk/commit/113ea56343bd30e44880d4d6212fc8e52398c68c
+。
+朝阳市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网上线），点击查询：https://github.com/kamilanpat/imqrvf/commit/0564ab5f9e96a8709449c87edc7afb1679105dce
+。
+潮州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日更新升级），点击查询：https://github.com/cellred77/bdevby/commit/3efb25c2a6d59ac28a7decd823e67a86b985fdad
+。
+郴州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一更新），点击查询：https://github.com/mortongh/deprzo/commit/b0e61dac0e08cafea4e409b9a966888233a7211f
+。
+承德市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式更新），点击查询：https://github.com/shibing228/mfnqza/commit/646539460b16ae726e1e1d0e9a1f2cc2f2b17f4d
+。
+成都市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布上线），点击查询：https://github.com/panatchici/rjolev/commit/6396596b8cfb34d49830de5cd1ee982211baddd9
+。
+池州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布上线），点击查询：https://github.com/aerosandro/okkqua/commit/b2f943b4bdf61b1ec45d551657a9ce5572081878
+。
+崇左市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新公布），点击查询：https://github.com/hectorgenc/lbflef/commit/8d338e5f9a7912c7256db5469f51b83e7d7f6b8f
+。
+滁州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式上线），点击查询：https://github.com/stoneherma/pzsocz/commit/0ae11ea5a969f1e4f0b913ba302ecab4cd02829c
+。
+慈溪市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网公布），点击查询：https://github.com/coldnickol/bsccwn/commit/1f054ac508751d21f401e2d70d36696c95133bd1
+。
+大丰市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网升级），点击查询：https://github.com/apression/erjdjl/commit/37a8d79552ac7af28b0ef0300d12f36f7fb2088b
+。
+大理市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一升级），点击查询：https://github.com/parabax/nivivt/commit/8d5d599b5de1051aeb3dfdb309264e74b4a7cabc
+。
+大连市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式更新），点击查询：https://github.com/michelgerr/jzlphl/commit/db4ba086a436e4f3389d8afd3f6089ca4cd590b0
+。
+大庆市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布升级），点击查询：https://github.com/jgroggerin/atxplp/commit/264cd6ad2f84909f9e26d52a29f7d2b9b098a168
+。
+大同市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日最新推出），点击查询：https://github.com/nauelps/lmsrmx/commit/4096bf9925624a4f52f4c6932dbefeb846a51398
+。
+达州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日更新升级），点击查询：https://github.com/jason9613/ybdnsk/commit/0feb5eccf4540be13e132cf751b2c6b8b7600681
+。
+丹东市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式推出），点击查询：https://github.com/mortongh/deprzo/commit/c0b29a9081f2344463397a8401093a18dd6c47c7
+。
+德清市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网上线），点击查询：https://github.com/shibing228/mfnqza/commit/0b7782f927dc441c97a5638a32c85165e02c9c1c
+。
+德阳市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日最新更新），点击查询：https://github.com/sdoom3808/vqolgk/commit/c50e6fdab4d976e63ac820d98c1e1fdb43917f75
+。
+德州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一上线），点击查询：https://github.com/triflecelo/etiqld/commit/b142a9e7702a9fd4fc62a64200f249293f4218bb
+。
+定州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布升级），点击查询：https://github.com/caudom/iobath/commit/fd219d378964d4a84f793c9d94201d623a63dc4c
+。
+东海市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式更新），点击查询：https://github.com/apression/erjdjl/commit/417e7c72ef062672fc0303f19edcc9f20f406cfa
+。
+东台市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日最新更新），点击查询：https://github.com/wardisa-sv/spzotr/commit/b5c113ca6229b7dd07e244a504825ef211a3eebb
+。
+东营市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一升级），点击查询：https://github.com/aerosandro/okkqua/commit/4948c6800450d54961c7c1f879e497fd7356e38d
+。
+东莞市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一上线），点击查询：https://github.com/greggalker/abjbht/commit/493384914d02c526bcb2cef2d0c2384718a6da90
+。
+鄂尔市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网上线），点击查询：https://github.com/integral75/vdnwdl/commit/148d7707187edca73d392902b297c3b148e9a5ca
+。
+鄂州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网升级），点击查询：https://github.com/parabax/nivivt/commit/d52933147906b5ee301c45a26394fe208ebb9a87
+。
+恩施市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式更新），点击查询：https://github.com/jgroggerin/atxplp/commit/62fe6b5db19b6aaef8f8ae6c8b211b591ec60bb7
+。
+防城港市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一更新），点击查询：https://github.com/michelgerr/jzlphl/commit/bef176e25f54a95910a1304358b303e9ecba5b46
+。
+佛山市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网升级），点击查询：https://github.com/jason9613/ybdnsk/commit/1f429d075f3f89e67a0cc9e2827e5b1c7773cf59
+。
+抚顺市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新升级），点击查询：https://github.com/nauelps/lmsrmx/commit/1013952b4f308f5dbda6f88671731ec0fba2c11e
+。
+阜新市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日最新推出），点击查询：https://github.com/mortongh/deprzo/commit/982377d719cb6036f8efe2b66f782d43f8d95e14
+。
+阜阳市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网发布），点击查询：https://github.com/shibing228/mfnqza/commit/312e95a4aa6e0add438b1df2927a3dd1f7f454ae
+。
+抚州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网升级），点击查询：https://github.com/sdoom3808/vqolgk/commit/8466e1ddc432b82842da9e70b0bb58409374aef0
+。
+福州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网上线），点击查询：https://github.com/triflecelo/etiqld/commit/e2beb2e75f24008cd92c929eaa9590f66320761f
+。
+赣州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式发布），点击查询：https://github.com/caudom/iobath/commit/dd591ee3165097ffedc36239b12a35b1e7f3ad94
+。
+馆陶市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式更新），点击查询：https://github.com/apression/erjdjl/commit/ee804c9ee087777531cca635d34b4cf72453ff15
+。
+广安市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一升级），点击查询：https://github.com/aerosandro/okkqua/commit/bec0145065e5026a56570e1d47bca88d09e0abbc
+。
+广元市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一发布），点击查询：https://github.com/wardisa-sv/spzotr/commit/91406f3b8a0415be5d454b066a16fc0da4b8e16e
+。
+广州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一更新），点击查询：https://github.com/42charffej/wqlgri/commit/2e6444ecf1dba311e765adccbb8d26471d5eb377
+。
+贵港市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日更新升级），点击查询：https://github.com/flyey631/vffrqq/commit/5fc0dc0ef62334ec33fe56371fecc31f3c1d231f
+。
+桂林市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式推出），点击查询：https://github.com/michaeljsm/pgcmhr/commit/cd6454bdb172348bd4d00c69e8c5dc879e1b6b76
+。
+贵阳市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式上线），点击查询：https://github.com/demilianmh/ubflei/commit/47a7e1ebd96f187e8197dc0d7e4ffb9f63a16bae
+。
+哈尔滨市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新公布），点击查询：https://github.com/preneddy/itvyva/commit/26e8cd3b898badaa2eb4f2192101cf5afd546203
+。
+海安市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布升级），点击查询：https://github.com/therosmirn/snixyg/commit/294435e66e26cbb2b4c003df416d9fa276fe9473
+。
+海口市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布升级），点击查询：https://github.com/rexelnacht/oftbdt/commit/a723bf30aa83643ca6182f52c01d14626039d90f
+。
+海门市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式推出），点击查询：https://github.com/cellred77/bdevby/commit/f9e25b51c3990df76cf79524c179c4d95f1684f6
+。
+海宁市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日官网上线），点击查询：https://github.com/inteered/psbfhf/commit/335c21f3466ca88aeed9ca8efdbb11d04ef27f75
+。
+邯郸市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新公布），点击查询：https://github.com/coldnickol/bsccwn/commit/835d5a4653c90bbbde6e9736a4a8ea6a36d9aefc
+。
+汉中市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日公布升级），点击查询：https://github.com/stoneherma/pzsocz/commit/e894f44632660b1d883d345ea3acd3370c08e6cc
+。
+杭州市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日统一升级），点击查询：https://github.com/kamilanpat/imqrvf/commit/86223850397d939a1cf0e5107ffbd2ee2beb3879
+。
+鹤壁市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新公布），点击查询：https://github.com/rule33mine/ewciwc/commit/f00b9b678bc51c1cf81c1de702f4c21464a0c6c4
+。
+河池市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日正式更新），点击查询：https://github.com/panatchici/rjolev/commit/1e8a5c4c14043907cee7edfecccb579702ea0f1c
+。
+合肥市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605（2026年07月10日全新升级），点击查询：https://github.com/hectorgenc/lbflef/commit/806b3727b3aff83238aed43237548f2f012ce937
+。
+河源市‌格力(GREE)空气能热水器售后服务电话：400 -960 -9605{变
